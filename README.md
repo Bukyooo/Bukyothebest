@@ -1,2 +1,4 @@
 # Bukyothebest
+https://media.discordapp.net/attachments/1206846334880063529/1362406849369870416/Screenshot_20250417-1923002.png?ex=6806e501&is=68059381&hm=4f4dab4579085c93963ba5a124643cd036ad151d33395796b61ef54825604cde&
 Scereamsss
+my c00lkid design heh
